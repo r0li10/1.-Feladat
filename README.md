@@ -1,4 +1,4 @@
-# [Név]
+# [Széles Roland]
 
 
 ## Hogyan kezdj neki?
