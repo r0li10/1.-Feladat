@@ -1,4 +1,4 @@
-# [Széles Roland]
+Széles Roland
 
 
 ## Hogyan kezdj neki?
